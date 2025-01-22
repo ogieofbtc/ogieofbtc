@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Social media manager, contents writing 
 - 🌱 I’m currently learning ... Crypto market analysis 
 - 💞️ I’m looking to collaborate on .. content writing, 
-- 📫 How to reach me ... ogioofbtc@gmail.com
+- 📫 How to reach me ... ogieofbtc@gmail.com
 - 😄 Pronouns: ... O-Gi-A-OF-BTC
 - ⚡ Fun fact: ... I have BTC 
 
